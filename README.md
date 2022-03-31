@@ -3,5 +3,8 @@ Olá, sou Felipe, entrei no curso porque me identifiquei muito com a área de da
 
 ##Curiosidades
 Gosto de jogar CSGO nas horas vagas.
-Tenho um cachorro chamado Bentinho
+
+Tenho um cachorro chamado Bentinho.
+
+Obrigado!
 
